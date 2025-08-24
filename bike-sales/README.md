@@ -31,3 +31,5 @@ Very few purchases from customers with 10+ miles commutes.
 
 Bikes appeal more to short and medium-distance commuters.
 
+
+### (Insights of this prohect are AI generated, to learn and showcase  faster analyzing of large datasets )

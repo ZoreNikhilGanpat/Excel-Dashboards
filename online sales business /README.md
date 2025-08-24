@@ -19,6 +19,6 @@ Must always keep a stock of kurtas throughout the year , as the sales are signif
 
 Similar for tops , sets as well
 
-Sarees sales show drastic flucations as per festive seasons at the near half of the year the sales inproves.
+Sarees sales show drastic flucations as per festive seasons at the near half of the year the sales improves.
 
 And many more as per stakeholders vison and demand..
